@@ -1,1 +1,0 @@
-# photograpy-project
